@@ -1,1 +1,1 @@
-# G
+# World Hardest Game
